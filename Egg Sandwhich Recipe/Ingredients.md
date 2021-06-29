@@ -1,0 +1,1 @@
+Egg, Salt, Pan, Bread, Mayonaise, Pepper.

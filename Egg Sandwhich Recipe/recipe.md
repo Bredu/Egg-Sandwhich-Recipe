@@ -1,0 +1,1 @@
+Begin cooking the egg, use salt and papper to your liking, spread mayonaise of your choice on the bread, when egg is finished cooking place it on the bread, place another piece of bread on top. Sandwhich is done!
